@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... turbo pascal
 - 💞️ I’m looking to collaborate on ...apple and IBM
 - 📫 How to reach me ... im rich bich
-- 111223356
+- 111223356j75
 
 <!---
 mitikug059/mitikug059 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
