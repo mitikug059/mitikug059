@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... cryptos
 - 🌱 I’m currently learning ... turbo pascal
 - 💞️ I’m looking to collaborate on ...apple and IBM523
-- 📫 How to reach me ... im rich bichjrtm tyum
+- 📫 How to reach me ... im rich bichjrtm tyumnbv
 - 111223356j75
 k 6rdy kydytj
 <!---
