@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mitikug059 or Valerchik)
 - 👀 I’m interested in ... cryptos
-- 🌱 I’m currently learning ... turbo pascal
+- 🌱 I’m currently learning ... turbo pascalrdtyu
 - 💞️ I’m looking to collaborate on ...apple and IBM523
 - 📫 How to reach me ... im rich bichjrtm tyumnbv
 - 111223356j75
