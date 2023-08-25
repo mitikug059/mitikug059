@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... turbo pascalrdtyu
 - 💞️ I’m looking to collaborate on ...apple and IBM523ety e hj
 - 📫 How to reach me ... im rich bichjrtm tyumnbvhrh yo;oihrthrht
-- 111223356j75f aerte utr
+- 111223356j75f aerte utr jyt
 k 6rdy kydytj
 <!---
 mitikug059/mitikug059 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
